@@ -10,4 +10,4 @@ Location:
 Classroom BT253
 
 Online Link: 
-https://teams.microsoft.com/meet/222303605668535?p=nBePoGFp8gf37ggNG5Links
+[https://teams.microsoft.com/meet/222303605668535?p=nBePoGFp8gf37ggNG5Links](https://teams.microsoft.com/meet/222303605668535?p=nBePoGFp8gf37ggNG5)
