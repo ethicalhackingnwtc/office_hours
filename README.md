@@ -1,6 +1,6 @@
 # office_hours
 
-Office Hours for the Fall 8wk1 session will be held as follows:
+Office Hours for the Fall 2026 8wk1 session will be held as follows:
 
 Date and Time: 
 Tuesdays and Thursdays
