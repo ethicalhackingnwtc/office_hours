@@ -3,13 +3,14 @@
 Office Hours for the Fall 2026 8wk1 session will be held as follows:
 
 
-Date and Time: 
+Date: 
 Tuesdays and Thursdays
     
     --Tuesdays ONLINE unless stated otherwise
     --Thursdays IN-PERSON unless stated otherwise
         --Location: Classroom BT253
 
+Time:
 11:30a-2:00p
 
 
